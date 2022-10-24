@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Martin Oscarsson
+- 👨‍🎓 I’m a PhD student in psychology at Stockholm University
+- 🧠 My studies concern stress and other work-related mental illness among adults with ADHD
